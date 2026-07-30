@@ -4,5 +4,7 @@
 
   <p align="center">
     sakimutsu brainrot
+
+  <p align="center">[ata ](https://composedaffection.atabook.org) .✦ ݁˖ [straw ](https://etheyurii.straw.page/) .✦ ݁˖ [guns ](https://guns.lol/ethe) .✦ ݁
     
   　<p align="center">![](https://komarev.com/ghpvc/?username=SEPULCHRALDEATH&label=❔&color=4b3c49)</p>
