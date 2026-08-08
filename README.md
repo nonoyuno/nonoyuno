@@ -4,7 +4,7 @@
   <p align="center">
     sakimutsu brainrot
     
-　<p align="center">[prns ](https://pronouns.cc/@mutsurin) .✦ ݁˖ [ata ](https://provoke.atabook.org/)    
+　<p align="center">[prns ](https://pronouns.cc/@mutsurin) .✦ ݁˖ [ata ](https://provoke.atabook.org/)  .✦ ݁˖ [straw ](https://yurusenai.straw.page)   
   　<p align="center">![](https://komarev.com/ghpvc/?username=SEPULCHRALDEATH&label=❔&color=4b3c49)</p>
      <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
